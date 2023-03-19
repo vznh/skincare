@@ -13,7 +13,8 @@
 I have dry and sensitive skin.
 I'm not a dermatologist nor an esthetican. Use these products at your own risk.
 
-###🌟 **March Routine** *(updated 19th)*
+### 🌟 **March Routine** *(updated 19th)*
+---
 ☀️ **Morning routine**
 1. Rub on Beauty of Joseon oil cleanser thoroughly. *Wash off completely.*
 2. Propolis Synergy Toner *(5 out of 7 days of the week)*
