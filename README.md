@@ -11,7 +11,7 @@
 I have dry and sensitive skin.
 I'm not a dermatologist nor an esthetican. Use these products at your own risk.
 
-### 🌟 Updated July 22
+### 🌟 Updated Aug 1
 ---
 ☀️ **Morning routine**
 1. Put [honey cleanser](https://www.amazon.com/dp/B083T7Z15S?psc=1&ref=ppx_yo2ov_dt_b_product_details) on and let it rest for 30 seconds.
