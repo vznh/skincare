@@ -5,22 +5,27 @@
 / (_..-' // (< _     ;_..__               ; `' / ///
  / // // //  `-._,_)' // / ``--...____..-' /// / //
 ```
+i have dry and sensitive skin
 
-**my pretty girl curated this (skincare pro)**
-
-I have dry and sensitive skin.
-I'm not a dermatologist nor an esthetican. Use these products at your own risk.
-
-### 🌟 Updated Aug 1
+### 🌟 updated dec 18 23
 ---
-☀️ **Morning routine**
-1. Put [honey cleanser](https://www.amazon.com/dp/B083T7Z15S?psc=1&ref=ppx_yo2ov_dt_b_product_details) on and let it rest for 30 seconds.
-2. If it's a salicylic acid night, put on salicylic acid in the morning. Else, don't do anything.
-3. Put on [hair density serum](https://www.sephora.com/product/multi-peptide-serum-for-hair-density-P442831?country_switch=us&lang=en&skuId=2210722&om_mmc=ppc-GG_1918213323_68906960325_pla-953360118888_2210722_353513010430_9032181_c&ds_rl=1261471&gclid=Cj0KCQjw2qKmBhCfARIsAFy8buIZ0CDnXrXTeaHDlvcfQQN_0GwOpo1zHpSTQS9CQQzASmTup9IaJO4aAp2iEALw_wcB&gclsrc=aw.ds) on eyebrows.
-4. Put [aloe vera](https://www.firstbotany.com/products/aloe-vera-gel-16-fl-oz) on face. Let it dry.
+☀️ **morning routine**
+1. splash face with warm water to open up pores
+2. anua 77 toner on entire face
+3. alpha arbutin (for dark spots) -> dr altheas vit c serum (for dark spots)
+4. snail mucin essence + snail mucin cream
+5. centella sunscreen
+6. hair growing oil on eyebrows ; vaseline cocoa butter lotion on body
+7. cologne depends on day ; maison margiela when the rain stops : bleu de chanel
 
-🌑 **Night routine**
-1. Put [aloe vera](https://www.firstbotany.com/products/aloe-vera-gel-16-fl-oz) on. Cleanse it off.
-2. Put whatever serum you want on. I alternate through [salicylic acid](https://www.amazon.com/dp/B07C9LGZ34?psc=1&ref=ppx_yo2ov_dt_b_product_details) or [anti-aging serum](https://www.amazon.com/dp/B00LE4QZIW?psc=1&ref=ppx_yo2ov_dt_b_product_details).
-3. Put on [hair density serum](https://www.sephora.com/product/multi-peptide-serum-for-hair-density-P442831?country_switch=us&lang=en&skuId=2210722&om_mmc=ppc-GG_1918213323_68906960325_pla-953360118888_2210722_353513010430_9032181_c&ds_rl=1261471&gclid=Cj0KCQjw2qKmBhCfARIsAFy8buIZ0CDnXrXTeaHDlvcfQQN_0GwOpo1zHpSTQS9CQQzASmTup9IaJO4aAp2iEALw_wcB&gclsrc=aw.ds) on eyebrows.
-4. Put [aloe vera](https://www.firstbotany.com/products/aloe-vera-gel-16-fl-oz) on face. Let it dry.
+🌑 **night routine**
+1. splash face with warm water to open up pores
+2. shave
+3. salicylic acid from [here](https://www.amazon.com/Salicylic-Pure-Organic-Ingredients-Hyper-pigmentation/dp/B07C9LGZ34/ref=asc_df_B07C9LGZ34/?tag=hyprod-20&linkCode=df0&hvadid=312142011499&hvpos=&hvnetw=g&hvrand=5291573305759445395&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9032181&hvtargid=pla-569448575882&psc=1&mcid=8fc8ee2dd1aa32fd9a352d563bd405c6&gclid=CjwKCAiA-P-rBhBEEiwAQEXhHzKYDHMmFLiLiC7GxX3oRpbL6qTa5j9qU0nKM4FqOvzaXa-Y3-OMCRoCZhAQAvD_BwE)https://www.amazon.com/Salicylic-Pure-Organic-Ingredients-Hyper-pigmentation/dp/B07C9LGZ34/ref=asc_df_B07C9LGZ34/?tag=hyprod-20&linkCode=df0&hvadid=312142011499&hvpos=&hvnetw=g&hvrand=5291573305759445395&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9032181&hvtargid=pla-569448575882&psc=1&mcid=8fc8ee2dd1aa32fd9a352d563bd405c6&gclid=CjwKCAiA-P-rBhBEEiwAQEXhHzKYDHMmFLiLiC7GxX3oRpbL6qTa5j9qU0nKM4FqOvzaXa-Y3-OMCRoCZhAQAvD_BwE)
+4. alpha arbutin + dr altheas vit c serum
+5. snail mucin essence + snail mucin cream
+6. usually my hair is wet so i place [aloe vera](https://www.amazon.com/gp/product/B01IP34H52/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) on my forehead and around my eye area to prevent acne
+7. vaseline cocoa butter lotion on entire body
+8. hair oil on eyebrows
+9. &honey hair oil on hairline, then finish with aforementioned aloe vera
+   
